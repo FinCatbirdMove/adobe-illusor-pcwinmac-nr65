@@ -1,4 +1,4 @@
-# 
+# Open Source Adobe Illustrator préréglages pour Mac OS | Meilleur Adobe Illustrator préréglages pour PC Windows. Avec tampon de duplication et nœuds matériaux — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
